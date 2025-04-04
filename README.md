@@ -1,4 +1,6 @@
-## Hi there 👋
+use code "YUMI" for 10% your gammersups!
+
+
 
 <!--
 **yumimain/yumimain** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
