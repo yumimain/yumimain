@@ -1,6 +1,4 @@
-im basically inactive and only talking to freinds co/richietozier has nothing on it ill remake it one day 
-🍓
-
+im basically inactive and never remaking rentry lol sorry
 
 
 <!--
