@@ -1,4 +1,5 @@
-use code "YUMI" for 10% your gammersups!
+im basically inactive and only talking to freinds co/richietozier has nothing on it ill remake it one day 
+🍓
 
 
 
