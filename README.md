@@ -1,4 +1,4 @@
-im basically inactive and never remaking rentry lol sorry
+use code "GROUP"
 
 
 <!--
