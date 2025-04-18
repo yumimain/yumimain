@@ -1,4 +1,4 @@
-use code "GROUP"
+use code "GROUP" for 10% your gammersupps
 
 
 <!--
