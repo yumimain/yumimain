@@ -1,5 +1,4 @@
-use code "GROUP" for 10% your gammersupps
-
+<img src="https://files.catbox.moe/6qcjuk.webp" alt= " alt text">
 
 <!--
 **yumimain/yumimain** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
