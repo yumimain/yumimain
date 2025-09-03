@@ -1,5 +1,5 @@
 <p align="center">
-  <img width="460" height="300" src="https://files.catbox.moe/5q10j0.webp">
+  <img width="460" height="300" src="https://files.catbox.moe/5er0le.png">
 </p>
 <p align="center">
-@blacklig_ht on twt </p>
+@corriecores on twt </p>
